@@ -1,0 +1,5 @@
+- Hi, I’m Natchaphon Sirisangsawang
+- I’m interested in Game Developer
+-I’m currently learning C# and Unity Game Engine
+-I’m looking to get some job that about Game!
+-How to reach me? Contact me at Email : pruek23062@gmail.com eg.I known the name is so funny haha don't laught on me it's just a part-time Email.
